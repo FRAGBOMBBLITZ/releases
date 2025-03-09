@@ -1,1 +1,1 @@
-Discord Server: https://discord.gg/GnX4dQkhnD
+Hi, hope you enjoy Walkbang, it's pretty simple... Maybe rewrite in the future.
